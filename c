@@ -1,1 +1,1 @@
-own code
+own code ㅈㅇㄴㅇㅇ
